@@ -1,3 +1,3 @@
 ## Hi there!
 
-I am a Selimzhan. I am a PhD candidate with James Fitzgerald.
+I am Selimzhan. I am a PhD candidate with James Fitzgerald. Co-created by Michael Deistler.
